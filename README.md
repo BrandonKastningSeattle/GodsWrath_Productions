@@ -101,3 +101,5 @@ https://www.dal.net/news/shownews.php?id=13
 “And upon every high tower, and upon every fenced wall,” - Isaiah 2:15 (KJV)
 
 “And upon all the ships of Tarshish, and upon all pleasant pictures.” - Isaiah 2:16 (KJV)
+
+NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust after her Sexually or in My Mind undress her / supplement for Masturbation! I have and will always Appreciate a Beautiful Damsel and Seek to Marry one!
