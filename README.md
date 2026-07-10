@@ -166,7 +166,13 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 “Verily I say unto you, It shall be more tolerable for the land of Sodom and Gomorrha in the day of judgment, than for that city.” - Matthew 10:15 (KJV)
 
-(Seattle WA) for I and Neighbors 
+(Seattle,  WA) for I and Neighbors 
+
+“Be sober, be vigilant; because your adversary the devil, as a roaring lion, walketh about, seeking whom he may devour:” - 1 Peter 5:8 (KJV)
+
+[Force Drugging City Wide; Shelter System Wide; Fake king (County, Municipal, State, Federal) 
+
+(Heater/AC Force Druggings, Vape Bomb Force Druggings, County Bus Force Druggings with Drug Addicted Non-Chosen/Elect Fake Believers Oppressed and Strategically Undermining Rights, Phone/Computer Military/Law "Enforcement" Technologies to Keep in False Power, Illigitmate American Constitutionally Bound Republican Form of Lawful Governments); Private Terror Cells for Fake kings.
 
 “Behold, I send you forth as sheep in the midst of wolves: be ye therefore wise as serpents, and harmless as doves.” - Matthew 10:16 (KJV)
 
@@ -183,5 +189,3 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 “But when they deliver you up, take no thought how or what ye shall speak: for it shall be given you in that same hour what ye shall speak.” - Matthew 10:19 (KJV)
 
 [Don't do their Duties (False County, Municipal kings); Be Faithful to Almighty Father G-d Yeshua Ha-Machiach]
-
-
