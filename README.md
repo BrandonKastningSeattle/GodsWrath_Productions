@@ -120,4 +120,8 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 “And he shall turn the heart of the fathers to the children, and the heart of the children to their fathers, lest I come and smite the earth with a curse.” - Malachi 4:6 (KJV)
 
+“And as they came down from the mountain, Jesus charged them, saying, Tell the vision to no man, until the Son of man be risen again from the dead." - Matthew 17:9 (KJV)
+
+
+
 
