@@ -157,3 +157,31 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 “Then saith Jesus unto him, Get thee hence, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.” - Matthew 4:10 (KJV)
 
 “No man can serve two masters: for either he will hate the one, and love the other; or else he will hold to the one, and despise the other. Ye cannot serve God and mammon.” - Matthew 6:24 (KJV)
+
+“And if the house be worthy, let your peace come upon it: but if it be not worthy, let your peace return to you.” - Matthew 10:13 (KJV)
+
+“And whosoever shall not receive you, nor hear your words, when ye depart out of that house or city, shake off the dust of your feet.” - Matthew 10:14 (KJV)
+
+[As to Why it's not Worthy]
+
+“Verily I say unto you, It shall be more tolerable for the land of Sodom and Gomorrha in the day of judgment, than for that city.” - Matthew 10:15 (KJV)
+
+(Seattle WA) for I and Neighbors 
+
+“Behold, I send you forth as sheep in the midst of wolves: be ye therefore wise as serpents, and harmless as doves.” - Matthew 10:16 (KJV)
+
+[Cunning and Non-Violent]
+
+“But beware of men: for they will deliver you up to the councils, and they will scourge you in their synagogues;” -Matthew 10:17 (KJV)
+
+[Traitor, Covenant Breaking Councils and Synagogues of Satan]
+
+“And ye shall be brought before governors and kings for my sake, for a testimony against them and the Gentiles.” - Matthew 10:18 (KJV)
+
+[Called and Accepted]
+
+“But when they deliver you up, take no thought how or what ye shall speak: for it shall be given you in that same hour what ye shall speak.” - Matthew 10:19 (KJV)
+
+[Don't do their Duties (False County, Municipal kings); Be Faithful to Almighty Father G-d Yeshua Ha-Machiach]
+
+
