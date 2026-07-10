@@ -112,3 +112,5 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 “Think not that I am come to destroy the law, or the prophets: I am not come to destroy, but to fulfil.” - Matthew 5:17 (KJV)
 
+“Verily I say unto you, This generation shall not pass away, till all be fulfilled.” - Luke 21:32 (KJV)
+
