@@ -134,7 +134,9 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 (Meaning; The True Adonai YHVH Yeshua Ha-Machiach Sent Man indwelled with HIS Holy Spirit/Rauach MUST Baptise in The Name of The Father, Son and Holy Spirit of The One True and Only Living Hebrew G-d)
 
+“If ye love me, keep my commandments.” - John 14:15 (KJV)
 
+[Revelation of HIS Second Coning in The Flesh; Prophesized by Holy Apostle John]
 
 
 
