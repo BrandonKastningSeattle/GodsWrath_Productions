@@ -138,6 +138,8 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 “If ye love me, keep my commandments.” - John 14:15 (KJV)
 
+“Because it is written, Be ye holy; for I am holy.” - 1 Peter 1:16 (KJV)
+
 [Revelation of HIS Second Coning in The Flesh; Prophesized by Holy Apostle John]
 
 
