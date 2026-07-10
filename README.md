@@ -117,3 +117,7 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 “Remember ye the law of Moses my servant, which I commanded unto him in Horeb for all Israel, with the statutes and judgments.” - Malachi 4:4 (KJV)
 
 “Behold, I will send you Elijah the prophet before the coming of the great and dreadful day of the LORD:” - Malachi 4:5 (KJV)
+
+“And he shall turn the heart of the fathers to the children, and the heart of the children to their fathers, lest I come and smite the earth with a curse.” - Malachi 4:6 (KJV)
+
+
