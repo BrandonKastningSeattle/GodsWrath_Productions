@@ -138,9 +138,11 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 “If ye love me, keep my commandments.” - John 14:15 (KJV)
 
+“But he answered and said, It is written, Man shall not live by bread alone, but by every word that proceedeth out of the mouth of God.” - Matthew 4:4 (KJV)
+
 “Because it is written, Be ye holy; for I am holy.” - 1 Peter 1:16 (KJV)
 
-[Revelation of HIS Second Coning in The Flesh; Prophesized by Holy Apostle John]
+[Revelation of HIS Second Coming in The Flesh; Prophesized by Holy Apostle John]
 
 
 
