@@ -109,3 +109,6 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 “For God hath put in their hearts to fulfil his will, and to agree, and give their kingdom unto the beast, until the words of God shall be fulfilled.” - Revelation 17:17 (KJV) 
 
 “If the Son therefore shall make you free, ye shall be free indeed.” - John 8:36 (KJV)
+
+“Think not that I am come to destroy the law, or the prophets: I am not come to destroy, but to fulfil.” - Matthew 5:17 (KJV)
+
