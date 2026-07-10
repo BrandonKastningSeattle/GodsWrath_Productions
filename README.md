@@ -130,7 +130,9 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 “But I say unto you, That Elias is come already, and they knew him not, but have done unto him whatsoever they listed. Likewise shall also the Son of man suffer of them.” - Matthew 17:12 (KJV)
 
-(Torture, Murder/Death; Like John The Baptist [Who had HIS Spirit with Adonai YHVH Jehovah Almighty Father G-d]
+(Torture, Murder/Death; Like John The Baptist [Who had HIS Spirit with Adonai YHVH Jehovah Almighty Father G-d])
+
+
 
 
 
