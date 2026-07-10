@@ -122,6 +122,9 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 “And as they came down from the mountain, Jesus charged them, saying, Tell the vision to no man, until the Son of man be risen again from the dead." - Matthew 17:9 (KJV)
 
+“And his disciples asked him, saying, Why then say the scribes that Elias must first come?” - Matthew 17:10 (KJV)
+
+
 
 
 
