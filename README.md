@@ -146,4 +146,4 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 “Then saith Jesus unto him, Get thee hence, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.” - Matthew 4:10 (KJV)
 
-
+“No man can serve two masters: for either he will hate the one, and love the other; or else he will hold to the one, and despise the other. Ye cannot serve God and mammon.” - Matthew 6:24 (KJV)
