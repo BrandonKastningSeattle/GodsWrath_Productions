@@ -114,6 +114,8 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 [Fufill; Meaning Live a Perfect Life (The Holy Torah), Prophesy as The True Living G-d in The Flesh,Lead a Perfect Holy Ministry, Passover Lamb, Be betrayed, Brutally Tortured and Murdered to be Resurrected, Ascend into Heaven, Returning to Father G-d,  Adonai YHVH Jehovah Almighty to Sit as HIS Right Hand; Outpouring HIS Spirit to indwell in HIS People (Chosen), Believers (Called), (Accepted)]
 
+“And the Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth.” - John 1:14 (KJV)
+
 “Verily I say unto you, This generation shall not pass away, till all be fulfilled.” - Luke 21:32 (KJV)
 
 “Remember ye the law of Moses my servant, which I commanded unto him in Horeb for all Israel, with the statutes and judgments.” - Malachi 4:4 (KJV)
