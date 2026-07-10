@@ -118,6 +118,8 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 “And the city had no need of the sun, neither of the moon, to shine in it: for the glory of God did lighten it, and the Lamb is the light thereof.” - Revelation 21:23 (KJV)
 
+“And there shall in no wise enter into it any thing that defileth, neither whatsoever worketh abomination, or maketh a lie: but they which are written in the Lamb's book of life.” - Revelation 21:27 (KJV)
+
 “Verily I say unto you, This generation shall not pass away, till all be fulfilled.” - Luke 21:32 (KJV)
 
 “Remember ye the law of Moses my servant, which I commanded unto him in Horeb for all Israel, with the statutes and judgments.” - Malachi 4:4 (KJV)
