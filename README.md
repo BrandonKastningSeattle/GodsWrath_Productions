@@ -124,7 +124,7 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 “And his disciples asked him, saying, Why then say the scribes that Elias must first come?” - Matthew 17:10 (KJV)
 
-
+“And Jesus answered and said unto them, Elias truly shall first come, and restore all things.” - Matthew 17:11 (KJV)
 
 
 
