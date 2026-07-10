@@ -36,7 +36,7 @@ My Father:
 
 Feel Free to Assume, Brandon Roger Kastning (Repository Account/Owner is):
 
-“When ye therefore shall see the abomination of desolation, spoken of by Daniel the prophet, stand in the holy place, (whoso readeth, let him understand:)” - Matthew 24:15 (KJV) [Bound by Evil until Adonai YHVH Yeshua Ha-Machiach Redeems Me]
+“When ye therefore shall see the abomination of desolation, spoken of by Daniel the prophet, stand in the holy place, (whoso readeth, let him understand:)” - Matthew 24:15 (KJV) [Bound by Evil until Adonai YHVH Yeshua Ha-Machiach Redeems Me]; I'll Explain in Full Detail in Full Testimony (Non-Rushed and Modern Web Development/Design/Technologies); Major changes, obstacles, challenges, feats, corrections at this time.
 
 
 To ALL DIVINE CREATION:
@@ -113,6 +113,10 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 “Think not that I am come to destroy the law, or the prophets: I am not come to destroy, but to fulfil.” - Matthew 5:17 (KJV)
 
 [Fufill; Meaning Live a Perfect Life (The Holy Torah), Prophesy as The True Living G-d in The Flesh,Lead a Perfect Holy Ministry, Passover Lamb, Be betrayed, Brutally Tortured and Murdered to be Resurrected, Ascend into Heaven, Returning to Father G-d,  Adonai YHVH Jehovah Almighty to Sit as HIS Right Hand; Outpouring HIS Spirit to indwell in HIS People (Chosen), Believers (Called), (Accepted)]
+
+“For there shall arise false Christs, and false prophets, and shall shew great signs and wonders; insomuch that, if it were possible, they shall deceive the very elect.” - Matthew 24:24 (KJV)
+
+(Elect = Chosen)
 
 “And the Word was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth.” - John 1:14 (KJV)
 
