@@ -182,6 +182,8 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 [Traitor, Covenant Breaking Councils and Synagogues of Satan]
 
+“Behold, I give unto you power to tread on serpents and scorpions, and over all the power of the enemy: and nothing shall by any means hurt you.” - Luke 10:19 (KJV)
+
 “And ye shall be brought before governors and kings for my sake, for a testimony against them and the Gentiles.” - Matthew 10:18 (KJV)
 
 [Called and Accepted]
