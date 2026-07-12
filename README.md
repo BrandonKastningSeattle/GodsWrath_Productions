@@ -192,6 +192,7 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 
 [Don't do their Duties (False County, Municipal kings); Be Faithful to Almighty Father G-d Yeshua Ha-Machiach]
 
-
 “He giveth power to the faint; and to them that have no might he increaseth strength.” - Isaiah 40:29 (KJV)
+
+“Even the youths shall faint and be weary, and the young men shall utterly fall:” - Isaiah 40:30 (KJV)
 
