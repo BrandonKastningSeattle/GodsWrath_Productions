@@ -209,4 +209,6 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 
 “Blessed are they that mourn: for they shall be comforted.” - Matthew 5:4 (KJV)
 
+“Blessed are the meek: for they shall inherit the earth.” - Matthew 5:5 (KJV)
+
 
