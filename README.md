@@ -218,6 +218,8 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 “Blessed are the pure in heart: for they shall see God.” - Matthew 5:8 (KJV)
 (I Brandon Roger Kastning Truly Have w/ My Two Witnesses [More In Detail Later])
 
+“Blessed are the peacemakers: for they shall be called the children of God.” - Matthew 5:9 (KJV)
+(I Brandon Roger Kastning Am Theough With That)
 
 
 
