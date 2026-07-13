@@ -207,3 +207,6 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 
 “Blessed are the poor in spirit: for theirs is the kingdom of heaven.” - Matthew 5:3 (KJV)
 
+“Blessed are they that mourn: for they shall be comforted.” - Matthew 5:4 (KJV)
+
+
