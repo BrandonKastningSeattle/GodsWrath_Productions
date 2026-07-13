@@ -221,5 +221,5 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 “Blessed are the peacemakers: for they shall be called the children of God.” - Matthew 5:9 (KJV)
 (I Brandon Roger Kastning Am Theough With That)
 
-
+“Blessed are they which are persecuted for righteousness' sake: for theirs is the kingdom of heaven.” - Matthew 5:10 (KJV)
 
