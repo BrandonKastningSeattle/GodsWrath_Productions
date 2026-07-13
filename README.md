@@ -197,3 +197,9 @@ NOW; for the first time in My Life; I look at a Beautiful Damsel and don't lust 
 “Even the youths shall faint and be weary, and the young men shall utterly fall:” - Isaiah 40:30 (KJV)
 
 “But they that wait upon the LORD shall renew their strength; they shall mount up with wings as eagles; they shall run, and not be weary; and they shall walk, and not faint.” - Isaiah 40:31 (KJV)
+
+
+Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
+
+“And seeing the multitudes, he went up into a mountain: and when he was set, his disciples came unto him:” - Matthew 5:1 (KJV)
+
