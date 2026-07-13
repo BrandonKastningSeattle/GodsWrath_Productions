@@ -226,3 +226,4 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 “Blessed are ye, when men shall revile you, and persecute you, and shall say all manner of evil against you falsely, for my sake.” - Matthew 5:11 (KJV)
 (GodsWrath)
 
+“Rejoice, and be exceeding glad: for great is your reward in heaven: for so persecuted they the prophets which were before you.” - Matthew 5:12 (KJV)
