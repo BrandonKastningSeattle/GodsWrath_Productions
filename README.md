@@ -214,3 +214,10 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 “Blessed are they which do hunger and thirst after righteousness: for they shall be filled.” - Matthew 5:6 (KJV)
 
 "Blessed are the merciful: for they shall obtain mercy.” - Matthew 5:7 (KJV)
+
+“Blessed are the pure in heart: for they shall see God.” - Matthew 5:8 (KJV)
+(I Brandon Roger Kastning Truly Have w/ My Two Witnesses [More In Detail Later])
+
+
+
+
