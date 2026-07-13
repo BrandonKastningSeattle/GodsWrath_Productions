@@ -203,3 +203,6 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 
 “And seeing the multitudes, he went up into a mountain: and when he was set, his disciples came unto him:” - Matthew 5:1 (KJV)
 
+“And he opened his mouth, and taught them, saying,” - Matthew 5:2 (KJV)
+
+
