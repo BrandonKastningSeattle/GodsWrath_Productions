@@ -223,3 +223,6 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 
 “Blessed are they which are persecuted for righteousness' sake: for theirs is the kingdom of heaven.” - Matthew 5:10 (KJV)
 
+“Blessed are ye, when men shall revile you, and persecute you, and shall say all manner of evil against you falsely, for my sake.” - Matthew 5:11 (KJV)
+(GodsWrath)
+
