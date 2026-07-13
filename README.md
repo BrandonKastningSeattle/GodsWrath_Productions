@@ -211,4 +211,5 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 
 “Blessed are the meek: for they shall inherit the earth.” - Matthew 5:5 (KJV)
 
+“Blessed are they which do hunger and thirst after righteousness: for they shall be filled.” - Matthew 5:6 (KJV)
 
