@@ -205,4 +205,5 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 
 “And he opened his mouth, and taught them, saying,” - Matthew 5:2 (KJV)
 
+“Blessed are the poor in spirit: for theirs is the kingdom of heaven.” - Matthew 5:3 (KJV)
 
