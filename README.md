@@ -236,3 +236,7 @@ No I will NOT serve MYSTERY, BABYLON THE GREAT!
 
 “And behold at eveningtide trouble; and before the morning he is not. This is the portion of them that spoil us, and the lot of them that rob us.” - Isaiah 17:14 (KJV)
 
+[To MYSTERY, BABYLON THE GREAT and Loyalists,]
+
+“The LORD shall bring a nation against thee from far, from the end of the earth, as swift as the eagle flieth; a nation whose tongue thou shalt not understand;” - Deuteronomy 28:49 (KJV)
+
