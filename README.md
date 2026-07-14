@@ -240,3 +240,6 @@ No I will NOT serve MYSTERY, BABYLON THE GREAT!
 
 “The LORD shall bring a nation against thee from far, from the end of the earth, as swift as the eagle flieth; a nation whose tongue thou shalt not understand;” - Deuteronomy 28:49 (KJV)
 
+“A nation of fierce countenance, which shall not regard the person of the old, nor shew favour to the young:” - Deuteronomy 28:50 (KJV)
+
+
