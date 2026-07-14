@@ -233,3 +233,6 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 “And if any man will sue thee at the law, and take away thy coat, let him have thy cloke also.” - Matthew 5:40 (KJV)
 
 No I will NOT serve MYSTERY, BABYLON THE GREAT!
+
+“And behold at eveningtide trouble; and before the morning he is not. This is the portion of them that spoil us, and the lot of them that rob us.” - Isaiah 17:14 (KJV)
+
