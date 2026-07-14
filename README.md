@@ -243,3 +243,5 @@ No I will NOT serve MYSTERY, BABYLON THE GREAT!
 “A nation of fierce countenance, which shall not regard the person of the old, nor shew favour to the young:” - Deuteronomy 28:50 (KJV)
 
 
+“And he shall eat the fruit of thy cattle, and the fruit of thy land, until thou be destroyed: which also shall not leave thee either corn, wine, or oil, or the increase of thy kine, or flocks of thy sheep, until he have destroyed thee.” - Deuteronomy 28:51 (KJV)
+
