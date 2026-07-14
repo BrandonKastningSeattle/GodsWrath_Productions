@@ -228,7 +228,7 @@ Yeshua Ha-Machiach's Promises to HIS [Elect/Chosen]:
 
 “Rejoice, and be exceeding glad: for great is your reward in heaven: for so persecuted they the prophets which were before you.” - Matthew 5:12 (KJV)
 
-[To My Criminal Unconstitutional Fake Freemasonic Un-American Traitors, Both Defrauded Political Parties and Drug Addicted, Abhorrent Conspirator Junkie Terrorist Army; Spanning across the U.S. and All 50 Free/Independent States. 3132 Other Counties; If it happens in 2 Counties in WA it's happened/happening Nationwide]
+[To My Enemies; Criminal Unconstitutional Fake Freemasonic Un-American Traitors, Both Defrauded Political Parties and Drug Addicted, Abhorrent Conspirator Junkie Terrorist Army; Spanning across the U.S. and All 50 Free/Independent States. 3132 Other Counties; If it happens in 2 Counties in WA it's happened/happening Nationwide]
 
 “And if any man will sue thee at the law, and take away thy coat, let him have thy cloke also.” - Matthew 5:40 (KJV)
 
