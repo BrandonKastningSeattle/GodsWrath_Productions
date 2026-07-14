@@ -245,3 +245,7 @@ No I will NOT serve MYSTERY, BABYLON THE GREAT!
 
 “And he shall eat the fruit of thy cattle, and the fruit of thy land, until thou be destroyed: which also shall not leave thee either corn, wine, or oil, or the increase of thy kine, or flocks of thy sheep, until he have destroyed thee.” - Deuteronomy 28:51 (KJV)
 
+“And he shall besiege thee in all thy gates, until thy high and fenced walls come down, wherein thou trustedst, throughout all thy land: and he shall besiege thee in all thy gates throughout all thy land, which the LORD thy God hath given thee.” - Deuteronomy 28:52 (KJV)
+
+
+
