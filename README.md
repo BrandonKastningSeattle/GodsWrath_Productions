@@ -248,3 +248,5 @@ No I will NOT serve MYSTERY, BABYLON THE GREAT!
 “And he shall besiege thee in all thy gates, until thy high and fenced walls come down, wherein thou trustedst, throughout all thy land: and he shall besiege thee in all thy gates throughout all thy land, which the LORD thy God hath given thee.” - Deuteronomy 28:52 (KJV)
 
 “Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me.” - Revelation  3:20 (KJV)
+
+“And I heard another voice from heaven, saying, Come out of her, my people, that ye be not partakers of her sins, and that ye receive not of her plagues.” - Revelation 18:5 (KJV)
