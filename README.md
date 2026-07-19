@@ -250,3 +250,5 @@ No I will NOT serve MYSTERY, BABYLON THE GREAT!
 “Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him, and will sup with him, and he with me.” - Revelation  3:20 (KJV)
 
 “And I heard another voice from heaven, saying, Come out of her, my people, that ye be not partakers of her sins, and that ye receive not of her plagues.” - Revelation 18:5 (KJV)
+
+“Woe unto them that call evil good, and good evil; that put darkness for light, and light for darkness; that put bitter for sweet, and sweet for bitter!” - Isaiah 5:20 (KJV)
